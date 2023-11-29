@@ -1,4 +1,4 @@
-👋 Hi, I’m @jumppunk
+👋 Hi, I’m IT Punk
 I'm backend softwear developer with a passion for Python and Go!
 I also have experience with frontend development.
 
