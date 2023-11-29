@@ -4,7 +4,7 @@ I also have experience with frontend development.
 
 
 - 👀 I’m interested in AI, webservices, IT community and a lot of things.
-- 📫 You can reach me on jumppunknow@gmail.com or Telegram https://t.me/jumpdevelop if you have any questions or just want to connect.
+- You can reach me on https://twitter.com/JumpPunk83906 or Telegram https://t.me/jumpdevelop if you have any questions or just want to connect.
 
 Let's go to the future together!!!
 
